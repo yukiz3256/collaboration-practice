@@ -11,7 +11,7 @@
 #### 9 Github is really awesome.
 
 #### 10
-#### 11 Github is cool
+#### 11 Github is good. 
 #### 12
 #### 13
 #### 14
